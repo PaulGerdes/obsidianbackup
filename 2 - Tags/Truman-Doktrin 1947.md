@@ -1,0 +1,1 @@
+Mit der "Truman-Doktrin" gab die USA ihr Prinzip des Nicht-Einmischens auf, setzte sich zum Ziel,den Kommunismus in Europa einzudämmen ("Containment") und Teile Europas an das westliche Wertesystem zu binden.

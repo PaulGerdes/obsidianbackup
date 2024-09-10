@@ -1,0 +1,1 @@
+Die Oktoberrevolution vom 25. Oktober / 7. November 1917 war die gewaltsame Machtübernahme durch die kommunistischen Bolschewiki unter Führung Wladimir Iljitsch Lenins in Russland

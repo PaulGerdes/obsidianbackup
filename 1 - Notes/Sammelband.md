@@ -1,0 +1,1 @@
+Von mehreren Leuten/Personen ein Buch über ein Thema zusammen fassend schreiben. Besteht aus mehren Texten die einen Formen

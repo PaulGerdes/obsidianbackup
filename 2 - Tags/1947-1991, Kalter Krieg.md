@@ -1,0 +1,1 @@
+Als der Kalte Krieg wird der Konflikt zwischen den Westmächten unter Führung der Vereinigten Staaten von Amerika und dem sogenannten Ostblock unter Führung der Sowjetunion bezeichnet, den diese von 1947 bis 1989 mit nahezu allen Mitteln austrugen

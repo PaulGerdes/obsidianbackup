@@ -1,0 +1,1 @@
+Ein Wirtschaftssystem, in dem die Produktion, Verteilung und Preise von zentralen Behörden, meist der Regierung, festgelegt und gesteuert werden.

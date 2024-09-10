@@ -1,0 +1,1 @@
+Die Wertemenge einer Funktion ist die Menge aller möglichen Ausgabewerte (y-Werte), die die Funktion annehmen kann, wenn alle zulässigen Eingabewerte (x-Werte) eingesetzt werden.

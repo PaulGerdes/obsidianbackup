@@ -1,0 +1,1 @@
+Die NATO-Osterweiterung ist die Aufnahme von ehemaligen Staaten der Warschauer Paktes und der ehemaligen Sowjet Union

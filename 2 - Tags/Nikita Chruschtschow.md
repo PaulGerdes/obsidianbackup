@@ -1,0 +1,2 @@
+- geboren: 15.04.1894 , gestorben: 11.09.1971           
+-  sowjetischer Militär, Politiker und von 1953-1964 erster Sekretär der KPdSU

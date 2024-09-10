@@ -1,0 +1,1 @@
+-Nach Karl Marx: Entwicklungsstufe, die auf gesellschaftlichen oder staatlichen Besitz der Produktionsmittel und eine gerechte Verteilung der Güter an alle steht

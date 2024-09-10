@@ -1,0 +1,1 @@
+Die **Definitionsmenge** einer Funktion ist die Menge aller zulässigen Eingabewerte (x-Werte), für die die Funktion definiert ist. Das bedeutet, die Definitionsmenge umfasst alle Werte, für die die Funktion einen gültigen, berechenbaren Funktionswert liefert.

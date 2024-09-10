@@ -1,0 +1,3 @@
+- geboren: 06.02.1911 , gestorben: 05.06.2004
+- ehemaliger Schauspieler und US-Politiker (Republikaner)
+- 40. Präsident der Vereinigten Staaten (von 1981-1989)

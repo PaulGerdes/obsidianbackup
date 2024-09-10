@@ -1,0 +1,1 @@
+Der Begriff Doktrin (lat. doctor= Lehre) wird im allgemeinen Sprachgebrauch als politische Leitlinie der Regierung aufgefasst

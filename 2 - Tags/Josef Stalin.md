@@ -1,0 +1,2 @@
+- geboren: 18.12.1878  , gestorben: 05.03.1953.        
+-  war ein sowjetischer kommunistischer Politiker und von 1927-1953 Diktator der Sowjetunion.

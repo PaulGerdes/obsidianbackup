@@ -1,0 +1,1 @@
+Michail Gorbatschow (1931–2022) war von 1985 bis 1991 Generalsekretär des ZK der KPdSU und 1990/91 Staatspräsident der Sowjetunion. In Abrüstungsverhandlungen mit den USA und durch die Politik von Glasnost und Perestroika leitete er das Ende des Kalten Krieges ein.

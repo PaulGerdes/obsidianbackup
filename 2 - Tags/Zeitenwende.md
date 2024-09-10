@@ -1,0 +1,1 @@
+Beginn einer neuen Ära

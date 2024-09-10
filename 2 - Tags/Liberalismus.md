@@ -1,0 +1,1 @@
+Liberalismus betont individuelle Freiheit und begrenzte staatliche Macht. Er fördert Menschenrechte, Demokratie und eine freie Marktwirtschaft.

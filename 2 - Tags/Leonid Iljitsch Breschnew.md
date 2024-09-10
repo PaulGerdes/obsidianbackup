@@ -1,0 +1,2 @@
+- geboren: 19.12.1906 , gestorben: 10.11.1982.         
+-  sowjetischer Politiker und von 1964 bis zu seinem Tod Generalsekretär der KPdSU sowie ab 1977 Vorsitzender des präsidiums des Obersten sow. Staatsoberhaupt

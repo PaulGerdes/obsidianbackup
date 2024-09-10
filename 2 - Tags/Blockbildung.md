@@ -1,0 +1,1 @@
+Die Blockbildung entstand durch die Rivalität von Politik und Idiologie zwischen den USA und der Udss

@@ -1,0 +1,1 @@
+Art Wörterbuch jedoch mit Kurzen Erklärungen 

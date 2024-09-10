@@ -1,0 +1,1 @@
+Ein Wirtschaftssystem, bei dem Privatbesitz und Gewinnstreben im Zentrum stehen, mit Märkten, die durch Angebot und Nachfrage gesteuert werden.

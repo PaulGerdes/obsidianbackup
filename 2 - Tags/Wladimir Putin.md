@@ -1,0 +1,2 @@
+- geboren: 07.10.1952
+- Russischer Politiker und Präsident der Russischen Föderation - seit 1999 führt er die Amtsgeschäfte des russischen Präsidenten

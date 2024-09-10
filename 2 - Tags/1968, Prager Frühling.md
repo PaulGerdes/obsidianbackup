@@ -1,0 +1,1 @@
+Der Prager Frühling ist die Bezeichnung für das Streben der tschechoslowakischen Kommunistischen Partei (KSČ, deutsch meist KPČ) unter Alexander Dubček im Frühjahr 1968, ein Liberalisierungs- und Demokratisierungsprogramm durchzusetzen, sowie vor allem die Beeinflussung und Verstärkung dieser Reformbemühungen durch eine sich rasch entwickelnde kritische Öffentlichkeit

@@ -1,0 +1,3 @@
+**Monoton wachsend**: Eine Funktion ist monoton wachsend, wenn für alle \( x_1 < x_2 \) gilt, dass \( f(x_1) \leq f(x_2) \). Das bedeutet, die Funktionswerte nehmen nie ab, sie bleiben entweder gleich oder steigen an.
+
+**Monoton fallend**: Eine Funktion ist monoton fallend, wenn für alle \( x_1 < x_2 \) gilt, dass \( f(x_1) \geq f(x_2) \). Das bedeutet, die Funktionswerte nehmen nie zu, sie bleiben entweder gleich oder fallen ab.

@@ -1,0 +1,1 @@
+Die EU-Osterweiterung ist die Aufnahme ehemaliger Sowjet Staaten und Warschauer Pakt Staaten

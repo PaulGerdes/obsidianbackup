@@ -1,0 +1,1 @@
+-Unter Wladimir Putin begann ab 2000 eine neue Ära russischer Außenpoltik, die mit der Übernahme des Gebietes der Krim im Jahr 2014 ihren Höhepunkt erreichte![[IMG_0235.jpeg]]

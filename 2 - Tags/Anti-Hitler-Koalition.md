@@ -1,0 +1,2 @@
+Die Anti-Hitler-Koalition ist das militärische Bündnis aus vorallem aus den USA, der UdssR und dem Vereinigten Königreich gegen die Achsenmächte (Japan, Deutschland, Italien) im 2.Weltkrieg
+![[IMG_0236.jpeg]]

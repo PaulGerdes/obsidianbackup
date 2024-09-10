@@ -1,0 +1,1 @@
+militärisches Eingreifen,um den Bestand des Sozialismus und Warschauer Paktes zu schützen
